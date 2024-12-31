@@ -1,6 +1,6 @@
 # Housing and Living Standards
 
-**[Portsmouth]([url](https://portsmouth.pro/))** offers a variety of housing options to suit different preferences and budgets. You can find modern apartments in the city center or charming old houses in areas like Southsea and Fratton. Whether you’re looking to rent or buy, there are plenty of choices available.
+**[Portsmouth]([url=https://portsmouth.pro/])** offers a variety of housing options to suit different preferences and budgets. You can find modern apartments in the city center or charming old houses in areas like Southsea and Fratton. Whether you’re looking to rent or buy, there are plenty of choices available.
 
 If you enjoy living by the sea, neighborhoods like Southsea and Old Portsmouth feature stunning water views and historic homes from the Victorian and Georgian eras. The central areas are filled with apartments, townhouses, and newly built residences.
 
