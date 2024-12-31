@@ -1,4 +1,4 @@
-# Housing and Living Standards
+# Housing and Living Standards 
 
 **[Portsmouth]([url=https://portsmouth.pro/])** offers a variety of housing options to suit different preferences and budgets. You can find modern apartments in the city center or charming old houses in areas like Southsea and Fratton. Whether you’re looking to rent or buy, there are plenty of choices available.
 
