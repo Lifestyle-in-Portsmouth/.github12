@@ -1,6 +1,6 @@
 # Housing and Living Standards
 
-**[Portsmouth]([url](https://portsmouth.pro/))** offers a variety of housing options to suit different preferences and budgets. You can find modern apartments in the city center or charming old houses in areas like Southsea and Fratton. Whether you’re looking to rent or buy, there are plenty of choices available.
+**[Portsmouth](https://portsmouth.pro/)** offers a variety of housing options to suit different preferences and budgets. You can find modern apartments in the city center or charming old houses in areas like Southsea and Fratton. Whether you’re looking to rent or buy, there are plenty of choices available.
 
 If you enjoy living by the sea, neighborhoods like Southsea and Old Portsmouth feature stunning water views and historic homes from the Victorian and Georgian eras. The central areas are filled with apartments, townhouses, and newly built residences.
 
@@ -24,4 +24,4 @@ Sports play a significant role in Portsmouth's culture. The city is home to Port
 
 Thanks to its coastal location, Portsmouth is a hub for water sports, including sailing, kayaking, and other ocean-based activities. Southsea Common is a popular outdoor spot where people can cycle, jog, or enjoy leisurely walks along the beach.
 
-**Read More About Portsmouth [Click Here](http://Portsmouth.pro)**
+**Read More About Portsmouth [Portsmouth.pro](https://portsmouth.pro/)
